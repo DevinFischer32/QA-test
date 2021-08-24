@@ -1,0 +1,1 @@
+https://trello.com/invite/b/mebQLhYV/5caecc3af0b66bb6c44d02276eb366cf/wanted-queries
